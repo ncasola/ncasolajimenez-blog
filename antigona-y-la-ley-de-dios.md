@@ -1,0 +1,9 @@
+Este mes asistí a la representación de la tragedia de Sófocles Antígona. Siempre me han gustado las tragedias clásicas  y esta en concreto estaba muy bien representada. Unos días después me vino a la mente una reflexión sobre las leyes, a raíz de la historia de Antígona.
+
+Para quien no conozca el mito, un resumen de Wikipedia: [http://es.wikipedia.org/wiki/Antigona](http://es.wikipedia.org/wiki/Antigona). 
+
+Lo que mas me impresionó de la obra fue el dialogo entre Creonte y Antígona, donde esta le recrimina al rey que imponga su ley por encima de las leyes de los dioses y las costumbres de los antiguos. Y me hizo pensar que hoy en día hemos llegado a unan situación similar. Las constituciones, las leyes democráticas  se han convertido en sagradas, y deben ser obedecidas por encima de todo. Pero debemos recordar que por encima de las leyes humanas está la Ley de Dios (y para los no creyentes la ley natural).
+
+Yo no puedo acatar la ley del aborto porque un parlamento diga que es justa (hay muchos ejemplos, eutanasia, impuestos injustos, y cualquier expresión de la coacción del Estado).  Decía un sabio griego, Protágoras**: “El hombre es la medida de todas las cosas”**. Juan Pablo II añadió a esta afirmación lo siguiente: “**Pero la medida del hombre es Dios**“. No somos infalibles, y la verdad no es cosa que se pueda cambiar. “**Lo que es, es, y lo que no es, no es**” concluyó Parménides. Aquí entra la cuestión del relativismo, la verdad objetiva y la realidad, que daría para otro articulo.
+
+Lo fundamental es tener la valentía de Antígona para defender aquello que sabemos que es justo, frente a la imposición de las leyes.
